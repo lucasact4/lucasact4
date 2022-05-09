@@ -3,7 +3,6 @@
 
 > Instagram [@lucasact4](https://www.instagram.com/lucasact4/)
 
-[![lucasact4](https://github.com/lucasact4/lucasact4/blob/main/linkedin-icon-logo-FBADE03110-seeklogo.com.png)](www.linkedin.com/in/lucasact4)
 > LinkedIn [lucasact4](www.linkedin.com/in/lucasact4)
 
 > E-mail [Outlook.com](funcraftact4@outlook.com)
